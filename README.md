@@ -1,1 +1,1 @@
-# Hotel-Govind-Kirpa
+# Hotel-Govind-Kripa
